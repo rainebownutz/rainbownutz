@@ -1,6 +1,4 @@
-how tf do u do ts shit.
-
-
+![download](https://github.com/user-attachments/assets/83f17827-d788-4d37-9d67-e2fe9781de43)
 
 
 
